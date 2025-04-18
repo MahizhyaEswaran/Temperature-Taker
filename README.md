@@ -4,9 +4,8 @@ A replacement is required when considering the safety of the person measuring th
 Youtube link: https://youtu.be/dbIPP1xY0us
 ![alt text](https://i.postimg.cc/2y0gsJSS/11.png)
 
-![alt text](https://i.postimg.cc/pTkpSD3J/3.png)
 
-![alt text](https://i.postimg.cc/BZT8LPpg/4.png)
+
 
 ![alt text](https://i.postimg.cc/GtDhCV2r/12.png)
 
